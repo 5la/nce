@@ -106,13 +106,7 @@
 3. **第三册**：重点在阅读、词汇和句型复杂度，培养复述和写作能力。
 4. **第四册**：进入英语原著阅读和学术表达层面，达到准母语水平。
 
----
 
-Site：[http://nce.ichochy.com](http://nce.ichochy.com)
-
-Blog：[http://ichochy.com](http://ichochy.com)
-
-资源：https://github.com/tangx/New-Concept-English
 
 ---
 
